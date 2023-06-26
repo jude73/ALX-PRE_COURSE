@@ -1,1 +1,1 @@
-My first readme
+AM JUDE IKO, FROM NIGERIA, AND AM AN ALX STUDENT!
